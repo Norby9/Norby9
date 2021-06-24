@@ -1,4 +1,4 @@
-Current mood:
+Mood:
 
 ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) ![](https://imgur.com/30MvhNj.gif) 
 
